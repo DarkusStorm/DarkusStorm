@@ -1,7 +1,7 @@
 # Hello there!
 ###### <sub>~~(Star Wars reference?)~~</sub>
 
-- {📋}— Sou **Tiago Alves da Silva**, estudante do _2º Ano_ do <ins>Centro Educacional do SESI 402(Vila das Mercês)</ins> e do <ins>SENAI Conde José Vicente de Azevedo(Ipiranga)</ins>. Tenho **dezesseis** anos;
+- {📋}— Sou **Tiago Alves da Silva**, estudante do _2º Ano_ do <ins>Centro Educacional do SESI 402(Vila das Mercês)</ins> e do <ins>SENAI Conde José Vicente de Azevedo(Ipiranga)</ins>. Tenho **dezesseis** anos e farei dezessete no dia **29/08**;
 - {📚}— Estou estudando <ins>**Análise e Desenvolvimento de Sistemas**</ins> em meu Curso Técnico;
 - {👾}— Pretendo seguir carreira como **assistente de T.I.** ou **programador** *(principalmente de jogos)*;
 - {🎮}— Sou um grande fã de jogos de **RPG** *(ex: Persona, Omori, Undertale, Final Fantasy, Pokémon)*, mas também sou apegado a clássicos de outras franquias como plataforma (*Sonic*, principalmente) e Metroidvania (*Castlevania* e Action Plataformers) e jogos de cartas *(Pokémon TCG, Legends of Runeterra, Yu-Gi-Oh!)*. Embora não seja fã de animes como um todo, gosto bastante de específicos como Hunter X Hunter e Attack on Titan. Por fim, costumo usar meu tempo livre em **sessões de RP/RPG** (principalmente por texto) e conversando, já que gosto de quando posso manter uma conversa por muito tempo com alguém;
